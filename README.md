@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @uke1999128
-- A Junior Front-End developer 
+- I am an accuracy-oriented and dedicated individual with a pro-active approach and the crucial ability to operate both independently and in fast-paced team environments.
